@@ -3,6 +3,6 @@ Welcome! Here you will find all the coursework (via my website) and programming 
 
 First and second year work is now available [on my website](https://aston.georgehotten.uk).
 
-I'm currently on my placement year (2025-26), so no new work will be added here any time soon!
+I'm currently undertaking my final year (2026-27) after my 2025-26 placement year.
 
 ❤️✨
